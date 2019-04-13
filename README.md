@@ -19,7 +19,7 @@ This recipe was originally inspired by a Cooks Illustrated recipe...  It has bee
 
 Mix wet, mix dry, mix together but don't over mix.  We aren't making bread!
 
-Cook up!  I use a cast iron griddle, dry.  Never sticks!
+Cook up!  I use a cast iron griddle, dry set at medium or just under.  Never sticks!  Trick is to have them cook slow enough that when both sides are nice and golden that the insides are cooked through.  For me this is usually 2-3 minutes per side.  When you start to see lots of bubbles popping on the top that first side should be done.
 
 Makes 12-14 3-4 inch diameter pancakes.
 
