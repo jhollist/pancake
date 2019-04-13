@@ -12,7 +12,7 @@ This recipe was originally inspired by a Cooks Illustrated recipe...  It has bee
 
 # Wet
 2 cups real Buttermilk (we use [Kates](http://kateshomemadebutter.com/))
-4 - 6 Tbs unsalted butter
+4 - 6 Tbs unsalted butter, melted
 2 eggs
 
 Mix wet, mix dry, mix together but don't over mix.  We aren't making bread!
